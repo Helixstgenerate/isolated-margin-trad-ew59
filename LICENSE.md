@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with top isolated-margin trading bot Plugin | market-making + perpetual-trading, the #1 isolated-margin trading bot. Includes market-making and
 
 
 
